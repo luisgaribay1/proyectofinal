@@ -1,0 +1,1 @@
+En la actualidad los estudiantes de nivel secundario y preuniversitario enfrentan una gran dificultad para elegir correctamente una carrera profesional debido a la falta de orientación personalizada y accesible. Muchos toman decisiones basadas en presión familiar o desinformación, lo cual puede afectar su rendimiento y bienestar académico a largo plazo
